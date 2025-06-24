@@ -37,9 +37,9 @@
 
 点击访问：<a href="https://hl386.pages.dev/">抖音黑料</a>
 
-点击访问：<a href="https://pi1-01.pages.dev/">50度灰</a>
+点击访问：<a href="https://hi11-1.pages.dev/">PornHub</a>
 
-点击访问：<a href="https://hl403.pages.dev/">最新海角</a>
+点击访问：<a href="https://hl414.pages.dev/">黑料门</a>
 
 点击访问：<a href="https://hl377.pages.dev/">黑料社app</a>
 
